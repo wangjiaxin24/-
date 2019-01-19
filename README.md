@@ -47,4 +47,8 @@ https://blog.csdn.net/leonie17/article/details/80379251
 
 知乎相关问题（1）：https://www.zhihu.com/question/264616413
 
+（2）：https://zhuanlan.zhihu.com/p/38056557?utm_source=wechat_session&utm_medium=social&utm_oi=617257243658293248
+
 github(1):https://github.com/liuhuanyong
+
+简书（1）：https://www.jianshu.com/p/4f09043e22ea
